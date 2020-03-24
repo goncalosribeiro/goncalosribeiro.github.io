@@ -1,1 +1,0 @@
-# goncalosribeiro.github.io
